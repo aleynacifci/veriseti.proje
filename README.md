@@ -1,1 +1,1 @@
-# veri-seti-olu-turma-projesi
+
